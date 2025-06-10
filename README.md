@@ -13,6 +13,20 @@ Ugh..after days I saw that usual he smile he gives after evalatuting my letter. 
 “You know how much I missed you,” was his second sentence and he pulled me closer and I know now this talk is going to be for whole night. This baby has a lot inside his head but can act as if he isn’t missing. 
 Now I do the same thing he did ghosting me, but then he knows how to behave and act like he don’t want me. How can he control this much of love? Lovely weird Rohan. 
 “You could’ve talked to me dear, how many times I asked about your day and kept quite” I broke into tears seeing my baby’s excitement. 
-“But Usha, it won’t work like that. You   
+“But Usha, it won’t work like that. We should accept pain in order to get discipline,” said Rohan. And he thinks all this is discipline. 
+“Shall we go out?,” I felt this was the right moment to ask him out. 
+“Restaurent? Naidu Gari Biryani?,” he suggested and that’s the only food place we don’t get bored ever. 
+The usual veg biryani we ordered. Meanwhile he’s constantly talking with me about the plans he made this week. He’s now into writing songs and he gave a rough overview of what the song is up to and it’s progress. The lyrics were good, but again you know the fact that song only gets good responses when the right kind of music adds to it. He approached a few music bands and they agreed to colab. See this is why I was mentioning he can live without me, doing many things. If someone like me is in his life he will discuss all the activities he did or he keep those within himself. But I’m not like that, mine is a simple life and all I want is one person to share my day with which has nothing interesting things in it. Boring life for real.
+“If you didn’t talk me today, I planned going home this weekend,” I tried conveying my loneliness in a single sentence. 
+“Oh, Shall we together go then?” this is the problem with him, either he loves too much and be like as if he don’t care. There’s no in between. 
+“Sure!!” my excitement knew no limits. 
+“It’s been days since I met your mom” said rohan and he was equally excited as me. 
+My mother and Rohan are best friends when we compare all generational gap friendships.  I don’t know why but Sudha likes him a lot. Because she’s a reader too. From the very beginning she dreamt many and wanted to be an independent women but my father didn’t allow. So she decided not to make me like that and gave every permission as if I’m a men. I literally grew like a men. Rohan’s many charcters involve working women having a good voice in society and well designed characters, so Sudha likes his books a lot. She knows more than what I know about all books combine. 
+
+
+
+
+
+
 
 
