@@ -22,6 +22,13 @@ The usual veg biryani we ordered. Meanwhile he’s constantly talking with me ab
 “Sure!!” my excitement knew no limits. 
 “It’s been days since I met your mom” said rohan and he was equally excited as me. 
 My mother and Rohan are best friends when we compare all generational gap friendships.  I don’t know why but Sudha likes him a lot. Because she’s a reader too. From the very beginning she dreamt many and wanted to be an independent women but my father didn’t allow. So she decided not to make me like that and gave every permission as if I’m a men. I literally grew like a men. Rohan’s many charcters involve working women having a good voice in society and well designed characters, so Sudha likes his books a lot. She knows more than what I know about all books combine. 
+It takes half and hour from the place we live in. So early morning after breakfast we decided to head towards my home. Primary reason was missing our physical intimacy which is leading to overflow my harmones. I craved for it. Equally he missed that, I hope. 
+***
+The pleasure we get while making love is immeasurable. That’s why many relations ends because of this cheating. That greed to involve with many is more than sin. I can never even imagine doing that. Romance is life, the little things in it define the beauty of it. We gently start with a kiss and it ends so powerful that can give rise to a soul. This time I’m not sure weather I’d take pills if I miss my periods. Yesterday was something different. Intense love since it’s been days. A clear affection, caring and a well nurtured scenario it was. Seeding a soul like that is a rarely event. And if I get pregnant through this, I’m keeping it. 
+Parts of our romance life is sold as million copies, yesterday’s love will be written somewhere in his future books. And reading that again, we re create the same. Sometimes we feel our stories to be told and I’m glad that every piece of my tale is being told by him. 
+“We don’t have time for breakfast” I made him rush and it’s almost 11 in the morning. 
+“Have a coffee,” I gave him along with biscuits so it would be like a half-breakfast.
+
 
 
 
