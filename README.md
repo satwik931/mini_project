@@ -77,3 +77,50 @@ After our lunch, we four of us played cards. Talked about random politics, gossi
 “You will pay?”
 “I mean us, come” 
 What does this mean. He says like that only? Are my words not considered? What the hell pronoun ‘I’ doing in the sentence I will pay. It’s supposed to be ‘we’. 
+
+
+
+
+“Hi rohan” I entered a new car again. 
+“How’s your weekend” he asked. 
+“Why do you buy these many cars?” I asked, unsure whether the same person who’d thinks 100 times to buy a small furniture item in his house would really buy these many fancy cars. 
+“No, many are gifts, a few are suggested by my Charted accountant.  He changes in a while and arranges bills accordingly. So that money is shown spent here but we actually run few non-governmental organizations”
+“That’s so great”
+“That’s not my greatness saran. It’s the basic human thing to do”
+“Yes, but a very rare fraction behaves like this” 
+“If all your needs are of 10 thousand, but you have more than it, let’s say twenty thousand then god’s intention is to donate the extra to the rest. You are just used as intermediate to serve. He chose you so that through you, the money gets distributed. It’s not like you’re his favourite child or he didn’t like the poor ones”
+“Everyone should have this thought process. Then this country won’t have rich and poor bias”
+“It should be. Richness is earned. If you equally distribute, then at a point a few stop working hard and enjoy the benefits. So, these classes are must. But the rich should help someone who have lack of resources but had a passion to grow, not to the ones who had resources but doesn’t work and are lazy”
+“That’s true”
+“I wrote all this exactly in one of my books. It became a good hit, but a very rare takes it till mind and try implementing”
+“What did you eat yesterday?”
+“Biryani”
+“Hey, if possible, would you bring it to me next week. I love the way she cooks it”
+“Haa. Sudha taught her,” he gave a sudden look at me unable to get how I knew that Sudha was usha’s mother. 
+“Did she tell you everything?” he asked putting the car in aside from the road. 
+“So you know it before?”
+He was silent. 
+“Why are you both playing with my life”
+“She doesn’t accept that she’s your wife. You already knew that Sudha isn’t my mother, but was calm all this time and fooling me”
+“Not fooling”
+“Then?”
+“Even I was surprised when you came to me saying Sudha was missing. Sudha is my mother-in-law. And you said she’s your mother. So that makes something evident”
+“What? She’s not my own mother, right? That I know the age gap of us is like that. Many from my childhood tried saying that, but I didn’t listen to any”
+“No not that”
+“Then what new lies you’re upto”
+“You are talking to your father”
+-----
+“Usha is your mother”
+“Sudha is...,” I interrupted. Now I understood the whole family tree.
+“Grandmother”
+“Why didn’t you tell this before?”
+“I know that you’re my son from the very beginning. You came with Sudha made me think who you are, and when you mentioned that Sudha was your mother, I confirmed it. But again you said usha was just your friend. So I thought usha was hiding to you and she too already knew that you’re our child”
+“So she also knows this?”
+“Definetely. She accepted Sudha is her mother. Then what did she say when you ask then how are we related?”
+“She didn’t tell any. Every time she says only Sudha knows that”
+“Text her now, to come near the toll gate”
+“Text like this, your husband is calling you Amma”
+
+
+
+
