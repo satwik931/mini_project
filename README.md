@@ -1,76 +1,59 @@
-Before giving him his favorite poha I made, I signaled for him to answer, “Tell me how much you missed me?” Otherwise, I wouldn’t give it to him.
-He put the plate aside, got up, pulled me into his arms, and started spinning me in circles. “This much,” he kept saying, while I was lifted off the ground, analyzing my living room blur, rotating with speed of 30 rotation per minute. 
-He was unable to sense I was being serious and expected a genuine answer, not his playful romance. 
-I left the conversation unfinished, and if I attempt to revisit it, he doesn’t hesitate to remind me that I once said, “What’s the point of living if you don’t express yourself emotionally?”
-“Hey, it won’t hurt the baby inside you?” he set me down gently.
-“The baby isn’t formed yet. At this stage, it’s just a single cell inside me, not like the way you imagine: a whole body, head, and everything already there” I explained his missed biology lectures. 
-“Obviously. I’m not dumb to assume the whole baby was in this barely visible stomach. I meant if rotating like this hurt you,” he responded. Thank God, or else he would have said it was the spin’s fault if the baby was born with a deformity. 
-“No, it won’t hurt” I smiled and asked “You could have done all this fun stuff in the past weeks as well” a part of me is dying to know how much he missed me. 
-“You could also have made many of my favorite dishes in the previous weeks,” he acted over smart. 
-“These Two things never change, One, the beauty of taj mahal and two, getting you to admit your mistakes” I spoke, aware that arguing with someone who won’t listen goes nowhere.
-“Yes. Two things that never change, One, taj mahal, two, your inability to see my point of view,” he copied my theme and shot back at me. 
-“Thanks,” I mentioned as I saw it as a compliment. 
-“Wait, tell me one thing” tapping on my stomach, I asked “If this wasn’t a part of me, how many more months would it have taken you to come to me?”
-“Takes as long as you take to come to me,” he answered instantly. 
-Seeing his usual ego-driven attitude, I asked. “What have you gained from being this way all these months?”
-“That depends on what you’ve lost. Is your behavior proper now? Have you let go of all those useless habits you had?” What the hell was that word ‘BEHAVIOUR’. Oh, now he thinks I’m the problem and is trying to teach me how to behave in society. If we leave him like this, he’ll end up saying everyone is wrong except himself.
-“I’m the same person with no changes. And I never need to be corrected. I’m just fine as I am,” In anger, I hit the table with my leg, causing the plate of poha to fall to the floor. So now he goes to the kitchen himself, serves the food, and enjoys the poha made by the women he calls misbehaved.
-These days, I often ask myself how I’ve been with him for six years, and what changed in these past two months that made life with him feel so different.
-Answer to this is simple, it’s “MARRIAGE”. Not every transformation is smooth. In college four years we have many friends around us to distract ourselves. In the past two years though we were living together, it’s with zero responsibilities. Almost every day in those two years, we was emotionally inactive, all we do is watch some romance movies, have food, sex and that’s it. Even though I say something about him to others, it’s like me saying something about Rohan. But now it seems I’ve turned into a woman who complains about her husband and exposes our household drama with all the neighbors. The smallest things we did for fun have now become the most serious things. How many times have I teased him about his salary, saying he earns only half as much as I do, But saying it after marriage created a scene, as if I had turned against my husband and was trying to take control of the house.
-I understand this overhaul and decided to take this slow. Give ourselves enough time and learn from experiences to become the best versions. I brought all my bedding into his room to show that it was the beginning of something new, but once again, I was the one making the compromise.
-He arranged all the bedding neatly and made it a comfortable place. Now the question is whether he still loves the unchanged, so-called misbehaved Usha, or if his love is just for his new daughter, Sree Gayatri.
-Being treated like a princess feels wonderful but it becomes disappointing when you realize it was only given because they thought you were a real princess. That’s exactly how all of this feels now.
-“Is it okay to make love during this time?” he asked. Here I am, worrying about how to fix our relationship, while he’s focused on having the same sex we’ve already done nearly seven hundred times. I don’t know what to say. 
-“Things are never feeling like before, Rohan. I never thought I’d survive months without speaking to you. I don’t have a pinch of shame to admit that I’m completely dependent on you and can’t live without you. Just because I’m here doesn’t mean I’m okay. You can’t judge my well-being by my mere existence. Ever tried talking to me? f you had, I would have just broken down and cried like a child. Why are you behaving like this?,” I expressed every thought without thinking it through. 
-“Why are you behaving like this? You are asking me? You slammed the table and reacted dramatically, you said so many hurtful things to me; you treated me like I was nothing. Despite everything you did, I stayed calm, hoping you’d eventually realize your mistake. And in return instead of accepting it you are blaming me now. Not you, I should ask you. Why are you behaving like this Usha?” He uses the same copycat formula on me and tries to manipulate me.
-“Should we give ourselves a little more time before talking again?” I asked so that I can come with a solid solution and fix things. 
-“No, you need someone during this time. We will fight like this, but in the same room,” he proposed something which he never follows. 
-“Even that you don’t do, Rohan. After some time when I say something, you just stay calm carrying the worst theory you had: “While someone’s in anger they won’t be in a position of accepting anything” Bullshit theory it is. First try telling and then see if I really don’t listen, do not walkaway like a coward,” I raised my voice out of anger.
-“See, how many things are getting added to the hurt list,” he said, and this was something to boost my rage like anything. For the first time, I want more than just words, I want to slap him hard for making me feel mentally unstable and depressed.
-“Don’t test my patience, Rohan. I’m not like you, I don’t know what will happen if you stay here. Please go outside, or come back after half an hour, or when I’ve fallen asleep,” I threw his pillow gesturing him to get out. The worst part is, we can’t sleep when we need it the most
-“Okay” he said leaving the room. If he just hugged me tighter and let me cry, everything would be okay. But I see him walking carelessly without having thoughts of fixing our bond.
-I fell asleep, and in the morning, I found Rohan beside me. I have no idea when he came next to me. 
-“Good morning,” I acted as if nothing had happened yesterday. 
-“Good morning, baby,” he kissed my forehead. He too acted well. 
-“Shwetha and Vishnu are visiting our home today,” he told. 
-“But they didn’t say anything,” This place is like a mess. I need time to make it clean. 
-“When I called them yesterday to say your pregnancy news, they felt happy and decided to visit us today”
-“Oh, Okay. At what time?” I asked. 
-“Maybe in next one hour,” he replied. 
+“Now that you’re here, it still doesn’t feel like home,” she murmured walking from the room. These days, she just speaks without thinking. 
+I kept quiet, once more. Years of your love is now complaining your very existence. I don’t know which incident made her like this. She expects me to say something, but what am I supposed to say when her words are so hurtful? I’m the only one who can tolerate this; imagine any other woman buying something worth lakhs without informing her husband, how would he react?  It would never be forgiven. He slaps her like anything and never trusts her. If all she wants is some reaction, I can do that. That’s not how I wanted to behave. We are educated and shouldn’t be dealing that. So, I chose to make her understand by giving her time and forgive for the nth time. Additionally, writing things down on paper deepens understanding, and rereading them later strengthens your connection. Also overthinking can be avoided and straight solutions are found. She disagreed doing that. I have no idea what she wants these days. She complains about everything.
+*** 
+No matter how often I try to speak with her these days, she ignores me every time. She wakes up so early, even before I finish freshening up. She goes to her office by herself, cook her own food. Our last conversation was about taking a break for a few more days. Maybe she’s just following that now. I’m unsure how many days that few days mean. Usha’s stomach has started to grow, and I just want to spend some time with her, talking about everything, being together. All I need is her permission.
+Two weeks passed and things were the same. I decided to put this before our so they can help us find a solution. First, I spoke with my father and made arrangements to visit our home. Usha listens to my father. 
 ***
-“Congratulations Dear,” Shwetha hugged me. 
-“Don’t talk to me. You didn’t say a single word about it,” Vishnu got upset with me. 
-“Tomorrow at the office, I wanted to say it in person, that’s why,” I extended my arms towards him, gesturing for a hug.
-“I know Rohan is hoping for a girl. Long ago he shared his hope of having five girls. In which three are ours,” she saw Vishnu and they were like we can do it, just three kids. 
-“Hopefully, she turns out to be a girl” I said. The manifestation should be so powerful that, in the end, if it’s a boy it turns to a girl.
-“Five girls. With us confused about their names, and they are playing on the two floors together. Wow. Life is going to be good soon,” Shwetha dreamt. Now, only God can protect the house we took and kept hidden from Rohan.
-Realizing she’d slipped, she immediately bit her lip and shot Rohan a strange look. 
-“Two floors?” he caught the main point. 
-“The duplex we are going to build,” Vishnu interrupted not having the idea that Swetha and I decided to keep this hidden from Rohan. 
-“Oh, in the same land that we discussed previously?” he asked, seeing all three of us. 
-“Yes, we bought it a month ago,” Vishnu whispered. 
-“Oh, you three are going to be there?” this was a bold way of saying something. 
-“Rohan, now you’re having children. You should have assets for security. Don’t behave like a child. Purchasing it helped us, now that this baby owns a property,” explained Shwetha pointing my belly. 
-“Yeah, I agree. We could have bought some good lands, no?” he continued. 
-“Who gives you 7 cents of land just for 2 lakhs?” she asked. I’m praying that this discussion should not turn towards me. Siblings should deal with this and close hear itself. 
-“Don’t you have commonsense to discuss with me before paying our share, Usha?” He abruptly ended the conversation and turned to face me. Suddenly, all the attention was on me.
-“No. I don’t have common sense. As you said I should change a lot and learn how to behave,” I gave a broad smile and attempted to quench his rage all at once. 
-“Can we talk about this later and spent some time with this couple,” I carried that smile while talking.  “Please,” I requested. 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+Coming home from the office, her face glowed as she saw my father in the living room. “Hi Uncle!” she said excitedly. 
+“How are you, Usha. All good?” my father maintained the same excitement. 
+“Excellent” she replied. Though that’s a false answer. 
+“Just came from Shwetha’s house”
+“How are they doing? Though I see Vishnu everyday. How’s Shwetha it’s been weeks,” she spoke taking a comfortable seat at the sofa. But not next to me. 
+“Yeah. They are doing great They said they’re planning to have kids soon, so I might have two granddaughters within a few months,” my father once imagined how wonderful his future was going to be. I can’t correct him, but when he said they’re planning for kids, I felt the same dislike I always have for such talk.
+“These people also constructed a house for you grandchildren. Don’t worry,” I interrupted. I hated my wife not sitting next to me in front of my father. 
+“Yeah, Shwetha told me. Very good decision. Proud that you’re having some assets on your name by a very young age,” he replied. So, it’s like all are one team who is playing against me. 
+“Good decision? You know why that land costs for such a low price?” I didn’t hesitate. 
+“Previously, it was a temple. Rohan c’mon. Don’t act silly. Opportunities don’t give any signs before they come, they just come like that and we should sense them,” I was surprised seeing my father talking like this. As you get older, you should become more inclined to believe in God.
+“Yes, Dad I’m the silliest person. A big fool. Enough about this topic. It already caused my wife and me to stop talking for months,” I remembered where all these misunderstandings started. “That’s why I said not to buy these lands,” I concluded. 
+“You stopped talking to me because of this land, and now you’re blaming the land for everything that’s happened. Are you out of your mind?” She went to the kitchen, probably to get some snacks and give me some space to talk to my father. 
+“What’s going on Rohan?” My father asked, making sure she was not nearby.
+“I don’t know Dad. We haven’t really spoken in months, and that’s actually the main reason I called you. Seeking some solution to it,” I laid it all out.
+“Why? There will be some reason, right?”
+“We are different. Not meant to stay together” I lowered my head in shame as I spoke.
+“How did you manage for years then?” He asked the same question about where I’m getting stuck. 
+“Because there came something in between: MARRIAGE. And she never feels the same, she can be a girlfriend. But as a wife, I doubt it,” I lowered my voice, making sure my wife couldn’t hear.
+“What is the difference?” 
+“Life of wife has the mother role in it. And I doubt she could be a good one”
+“You can’t say that. If she hears this, it will really hurt her feelings. Such words can be deeply painful for a girl. Never say that again,” he warned me, and it hit me that what I said was far too much. No girl deserves that.
+“No, No, what I’m trying to say is motherhood begins when you start putting others before yourself.  She needs to move beyond self-centeredness to be a good wife. There comes a point where you should be by your husband side though the whole world is against you. Same with the child, you should not care to leave your job for spending time with him in his initial years. Now, ask her to quit the job and listen what she says, then you’ll understand why I’m talking like this” I tried using simple words this time. 
+“Do you think Shwetha quits the job during her pregnancy?” he questioned, and I didn’t get why he is asking this. 
+“Is it relevant?”
+“Son, these days no one’s like you are thinking. Things changed. Happy that both are earning livelihood. Get that positive perception. How would it feel when I ask you to quit the writing?”
+“Dad. Are you serious? How can you relate this with my writing?”
+“It’s your favourite job. So that’s hers. Makes sense?” that moment I understood even my father got brainwashed and is trying to fit in this wrong society forgetting his roots. 
+“Okay. Talk to her something and solve this if possible” I requested him, having a tiny hope that his words would create some magic and fix us. 
+“Go and call her” he demanded though I asked him to do that. 
+“Not shouting her name from here. Go to the room she was in and bring her” he ordered when I’m about to shout and escape the task. 
+Slowly I sat next to her and gave an awkward simle. “Dad is calling us,” smile broadened. 
+“Us?”
+“Yeah. He wants to talk to us”
+“What have you said?” she asked tensed. The impression my father had on her shouldn’t be spoiled. 
+“What’s going on between us”
+“So, this won’t come under misbehaviour?” she lost her nerves. Trying to win over me since I mentioned the word ‘MISBEHAVE’ when she shared it with Shwetha. 
+“About this only he wanted to talk. Please come” I took her hand and requested. 
+“Uncle” 
+“Both of you have a seat” he pointed the same sofa so that we sit on the same. 
+“After your mother and I got separated, many times, I felt like going back to her. But I always wondered, “What if she doesn’t accept me?” So I never tried and just kept all those feelings inside,” even I didn’t know he missed my mom. 
+“Uncle but we don’t have thoughts of getting divided. We just wanted to give some break” she said, which was true. I always complained that she was not in the right track for now. But that doesn’t mean I will abandon her, I just want to see her change. And I hope she will. 
+“Taking break for a long time is what divorce is” he cut her long sentence with a solid reply. “It starts like this Usha, taking breaks, trying new things, and you know, this generation people have many options available with them. So you should mentally be strong. Not even a single thought of having breaks. Work on it, Work on it. Don’t leave like that”
+“I tried many times. He doesn’t cooperate” what the hell is wrong with this woman. 
+“Same dad, she never listens to me” I added my side of complaint. 
+“I can understand. It’s so new to accept the change. Soon, you’ll understand why there’s a saying “Having a baby will save your relationship” And believe me, It becomes so difficult when there’s no one to look after you as you grow older.” he gave the pieces of knowledge he had. 
+“You may not believe this, but these days I’m working on getting back with your mother” he said, and it blew my mind. 
+“Seriously dad? You used to hate her. Remember?” being more with him, partially created some sort of negative impression on my mom too. 
+“yeah, only because I loved her. After you left me, a few months I spent with Shwetha. Then I understood why a woman misunderstood me and the way I behave was not suited for them. It’s understandable. You can’t be same to all Rohan. There’s a way. You can’t go to a kid and say the whole Disneyland is a lie, though it’s true, it hurts the kid”
+“So?”
+“Sorry Usha, it’s my fault I don’t know how to raise a man who can be liked by a woman. I can’t learn that because I’m never good at that. A failed one”
+“dad you’re blaming on you all this? Stop it”
+“No son. These are facts. I can understand how Usha feels being with you”
+“Please I beg you. My son will soon change and don’t make this bond break” 
